@@ -1,0 +1,2 @@
+# megamanuz
+Zoʻr
